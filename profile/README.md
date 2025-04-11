@@ -1,4 +1,7 @@
-## Hallooo Kami Dari Aurakomputer 👋
+## Kembangkan teknologi bersama kami
+
+Kami menyediakan solusi teknologi digital untuk kehidupan yang lebih baik. mengedepankan penggunaan teknologi modern dan yang populer berkembang
 
 
-kami memberikan pelayanan terbaik seputar teknologi modern di indonesia
+### Contact
+- https://s.id/aurakomputer
